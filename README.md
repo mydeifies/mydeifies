@@ -87,4 +87,4 @@ about ::
 ![image](https://64.media.tumblr.com/6bf30288bcb4a0726a9cedf58fd1bfc5/136111900b1e0cc4-f8/s2048x3072/8b5c8f52d57709efaa3ec749fc0b24259c0682f9.pnj)
 
 
-tumblr crds to: prismaticvampire , abudasima 
+tumblr crds to: abudasima 
