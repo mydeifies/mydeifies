@@ -27,6 +27,7 @@ i'll remake this entire thing soon..
 
 
 【﻿ＤＮＩ ! and other stuff】   ill move these to my rentry soon.
+
 │first and foremost, do not cover me or my friends when we are afk or cuddling. 
 
 │ @DO NOT TAKE INSPO ──★ it took me
