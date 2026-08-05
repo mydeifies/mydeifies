@@ -26,7 +26,7 @@ i'll remake this entire thing soon..
 ![image](https://64.media.tumblr.com/eadae0c5343dad8dd48fdec01d2dbcf4/136111900b1e0cc4-ab/s2048x3072/6d02a3f9d394df9272f6f0a0cecc93484b12d10b.pnj)                                                          
 
 
-【﻿ＤＮＩ ! and other stuff】   
+【﻿ＤＮＩ ! and other stuff】   ill move these to my rentry soon.
 │first and foremost, do not cover me or my friends when we are afk or cuddling. 
 
 │ @DO NOT TAKE INSPO ──★ it took me
