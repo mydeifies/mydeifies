@@ -20,6 +20,7 @@ i'll remake this entire thing soon..
 	  
 	   𝙤𝙡𝙙 𝙣𝙖𝙢𝙚𝙨 :: Chiyo, 
 	   Saturn, Ven, Tiel
+	   incase old oomfies sees my gh🥺
 
 
 ![image](https://64.media.tumblr.com/eadae0c5343dad8dd48fdec01d2dbcf4/136111900b1e0cc4-ab/s2048x3072/6d02a3f9d394df9272f6f0a0cecc93484b12d10b.pnj)                                                          
