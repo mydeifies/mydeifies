@@ -4,11 +4,11 @@
 
 i'll remake this entire thing soon..
 
-𝐈𝐍𝐓𝐑𝐎 ![image](https://64.media.tumblr.com/6881ee80dd1d2cd5a5ebedb851afac60/8e4be4c39f609465-47/s400x600/6ac92f8e8ad4e79b3aa64d55101b0ded4209f701.png)
+𝐈𝐍𝐓𝐑𝐎 ![image](https://64.media.tumblr.com/e98502d0fcca5bd614b012869fb5405a/136111900b1e0cc4-46/s2048x3072/2ebd110a1c960eb78cc21838a073782ed4904ebe.pnj)
 
 〃✦ ┆ c+h and int are heavily encouraged!
 
-    𝙚𝙡𝙤𝙙𝙞𝙖 ∞　҂ㅤㅤ    genderfluid   
+    ⠀︵⠀𝙘ᥲ𝙨𝙨𝙮  ᥬᩤ ᥉υ𝙣𝙣ყ .ᐟ .ᐟ Ⳋ𝅄 ∞　҂ㅤㅤ   genderfluid   
              any prns  ♱   
 	𝐫𝐞𝐜𝐢𝐩𝐫𝐨𝐦𝐚𝐧𝐭𝐢𝐜 𝘥𝘦𝘮𝘪𝘴𝘦𝘹𝘶𝘢𝘭　.  ═╬
 	꒪ㅤ  17+,  multishipper .   
@@ -22,12 +22,10 @@ i'll remake this entire thing soon..
 	   Saturn, Ven, Tiel
 
 
-![image](https://64.media.tumblr.com/3cc5a7ebf56be0f0b74d515b84e36983/8e4be4c39f609465-ef/s100x200/88c32c91df7cec61f75fc078eb851f534feb404d.png)                                                                                   ![image](https://64.media.tumblr.com/4215cacb490409cae2fb6d38d1362348/415dba9ce135bfdc-e0/s400x600/32a8fb0a365f77adcc670d530f9929ecda19fe9d.png)
+![image](https://64.media.tumblr.com/eadae0c5343dad8dd48fdec01d2dbcf4/136111900b1e0cc4-ab/s2048x3072/6d02a3f9d394df9272f6f0a0cecc93484b12d10b.pnj)                                                          
 
 
-【﻿ＤＮＩ ! and miscellaneous】   
-![image](https://64.media.tumblr.com/86690adb910cf3f425630efc7dee8958/415dba9ce135bfdc-c7/s100x200/8d61ccff2c8f847c1cbb92ed1d7806c984072b83.png) 
-
+【﻿ＤＮＩ ! and other stuff】   
 │first and foremost, do not cover me or my friends when we are afk or cuddling. 
 
 │ @DO NOT TAKE INSPO ──★ it took me
@@ -47,7 +45,7 @@ then it's obviously stolen)
 │ proshippers, homophobes , jokes 
 about ::
   pedophillia and sensitive topics, 
-  etc + i ABSOLUTELY hate 
+  etc + i **PERSONALLY** hate 
   neuvifuri/arlefuri, zhongxiao, 
   k*eluc, rerflins/or any rerir ships 
   aside from the canon.
@@ -86,7 +84,7 @@ about ::
    other shows n animes, 
    cosplaying (online and irl!) 
 
-![image](https://64.media.tumblr.com/30471b860119adbea832d49c3f9568e1/8e4be4c39f609465-44/s2048x3072/29d0da50a11d3756224f0f5d60a5a5bf95f19592.png)
+![image](https://64.media.tumblr.com/6bf30288bcb4a0726a9cedf58fd1bfc5/136111900b1e0cc4-f8/s2048x3072/8b5c8f52d57709efaa3ec749fc0b24259c0682f9.pnj)
 
 
 tumblr crds to: prismaticvampire , abudasima 
