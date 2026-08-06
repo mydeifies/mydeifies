@@ -6,7 +6,7 @@
 
 <div align=center>
 
-[ooo u wanna click me so bad](https://rentry.co/sunnegisel)
+[ooo u wanna click me so bad](https://rentry.co/cassynaiche)
 
 </div>
 
