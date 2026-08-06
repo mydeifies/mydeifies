@@ -32,10 +32,10 @@
 
 </div>
 
+tumblr crds to: abudasima
 ![image](https://64.media.tumblr.com/6bf30288bcb4a0726a9cedf58fd1bfc5/136111900b1e0cc4-f8/s2048x3072/8b5c8f52d57709efaa3ec749fc0b24259c0682f9.pnj)
 
 
-tumblr crds to: abudasima
 
 
 
@@ -44,9 +44,11 @@ tumblr crds to: abudasima
 
 
 
-
-art dump, all by me okok ok? 👍 
-
+<div align=center>
+	
+![image](https://64.media.tumblr.com/c22461ef41af1fd22cff57e338b3d7d1/7c30ea0e5d324241-32/s75x75_c1/a22ba1d4365cb0d35ba6a6abe535718bd3693e54.gifv) ![image](https://64.media.tumblr.com/d6c2c341eca967512ece4c63d6929cc8/7c30ea0e5d324241-dc/s75x75_c1/455d5acd518454ce92218fd049105735c8a50429.gifv) ![image](https://64.media.tumblr.com/6ac4872d04bc8294d1f28d43e98361c5/7c30ea0e5d324241-f5/s75x75_c1/67a2be33f3a710b12063367a3718aad7ff7d2275.gifv) DUMP
+all by me okok ok? 👍 
+</div>
 
 gift 4 yinny🥺
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534907466910007417/Untitled21_20260806204744.png?ex=6a75d579&is=6a7483f9&hm=6cdd213b0562539b82fc7a7cf635b9537d34257859181fd1536787ff4d62b656&)
