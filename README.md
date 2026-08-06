@@ -10,7 +10,7 @@
 
 <div align=center> 
 	
-	〃✦ ┆ c+h and int are heavily encouraged!
+〃✦ ┆ c+h and int are heavily encouraged!
 
     ⠀︵⠀𝙘ᥲ𝙨𝙨𝙮  ᥬᩤ ᥉υ𝙣𝙣ყ .ᐟ.ᐟ ҂ㅤㅤ   
 	genderfluid   
