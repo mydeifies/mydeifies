@@ -9,6 +9,7 @@
 𝐈𝐍𝐓𝐑𝐎 ![image](https://64.media.tumblr.com/e98502d0fcca5bd614b012869fb5405a/136111900b1e0cc4-46/s2048x3072/2ebd110a1c960eb78cc21838a073782ed4904ebe.pnj)
 
 <div align=center> 
+	
 	〃✦ ┆ c+h and int are heavily encouraged!
 
     ⠀︵⠀𝙘ᥲ𝙨𝙨𝙮  ᥬᩤ ᥉υ𝙣𝙣ყ .ᐟ.ᐟ ҂ㅤㅤ   
