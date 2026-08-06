@@ -34,6 +34,8 @@
 
 <div align=center>
 
+[pt's mydei!](https://github.com/pt-fashion)   🔺  [dumbquadro](https://github.com/pt-friendships)
+
 haha stupid squad [yin](https://github.com/phainonirl) [cho](https://github.com/t0rntodescent) [chalk](https://github.com/HiromiAndSanemiLover)
 
 </div>
