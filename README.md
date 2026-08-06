@@ -12,20 +12,19 @@
 	
 〃✦ ┆ c+h and int are heavily encouraged!
 
-    ⠀︵⠀𝙘ᥲ𝙨𝙨𝙮  ᥬᩤ ᥉υ𝙣𝙣ყ .ᐟ.ᐟ ҂ㅤㅤ   
-	genderfluid   
-          masc pronouns  ♱   
+    ⠀︵⠀𝙘ᥲ𝙨𝙨𝙮  ᥬᩤ ᥉υ𝙣𝙣ყ .ᐟ.ᐟ genderfluid   
+    masc pronouns  ♱   
 	𝐫𝐞𝐜𝐢𝐩𝐫𝐨𝐦𝐚𝐧𝐭𝐢𝐜 𝘥𝘦𝘮𝘪𝘴𝘦𝘹𝘶𝘢𝘭　.  ═╬
-	꒪ㅤ  17+,  multishipper .   
-	   entp
+	꒪ㅤ 17+,  multishipper .   
+	entp
 
-	   16- iwc, please state
-	   ur age so i can tone down my 
-	   nsfw jokes
+	16- iwc, please state
+	ur age so i can tone down my 
+	nsfw jokes
 	  
-	   𝙤𝙡𝙙 𝙣𝙖𝙢𝙚𝙨 :: Chiyo, 
-	   Saturn, Ven, Tiel
-	   incase old oomfies sees my gh🥺
+	𝙤𝙡𝙙 𝙣𝙖𝙢𝙚𝙨 :: Chiyo, 
+	Saturn, Ven, Tiel
+	incase old oomfies sees my gh🥺
 
 </div>
 
