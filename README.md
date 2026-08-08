@@ -60,7 +60,7 @@ all by me okok ok? 👍
 </div>
 
 Sharlettlin!! Genshin OC (⁠≧⁠▽⁠≦⁠)
-![image](https://cdn.discordapp.com/attachments/1506651904116002918/1535638148451663952/Untitled23_20260808211703.png?ex=6a787df9&is=6a772c79&hm=502f9b16840e3e9142a3d34b2a99c4c9d9d7c7f587cc5dce17873a3406976900&)
+![image](https://cdn.discordapp.com/attachments/1506651904116002918/1535641496546443387/Untitled23_20260808213044.png?ex=6a788117&is=6a772f97&hm=70675fc524b2a40e3fa01ea678953b039fed5555952aafb228dcb9701861684b&)
 
 
 
