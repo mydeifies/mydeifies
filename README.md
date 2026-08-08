@@ -59,6 +59,11 @@ tumblr crds to: abudasima
 all by me okok ok? 👍 
 </div>
 
+Sharlettlin!! Genshin OC (⁠≧⁠▽⁠≦⁠)
+![image](https://cdn.discordapp.com/attachments/1506651904116002918/1535593038020354138/Untitled22_20260808181605.png?ex=6a7853f6&is=6a770276&hm=20c48496c67caab8832fdcd4cbea6410e50318260814b148a0b809ff3735c871&)
+
+
+
 gift 4 yinny🥺
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534907466910007417/Untitled21_20260806204744.png?ex=6a75d579&is=6a7483f9&hm=6cdd213b0562539b82fc7a7cf635b9537d34257859181fd1536787ff4d62b656&)
 
