@@ -4,11 +4,7 @@
 </div>
 
 
-<div align=center>
 
-[ooo u wanna click me so bad](https://rentry.co/cassynaiche)
-
-</div>
 
 𝐈𝐍𝐓𝐑𝐎 ![image](https://64.media.tumblr.com/e98502d0fcca5bd614b012869fb5405a/136111900b1e0cc4-46/s2048x3072/2ebd110a1c960eb78cc21838a073782ed4904ebe.pnj)
 
