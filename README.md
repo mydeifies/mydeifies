@@ -10,7 +10,7 @@
 
 <div align=center> 
 	
-〃✦ ┆ c+h and int are heavily encouraged!
+〃✦ ┆ c+h + int : 𝐡𝐞𝐚𝐯𝐢𝐥𝐲 𝐞𝐧𝐜𝐨𝐮𝐫𝐚𝐠𝐞𝐝 !
 
     ⠀︵⠀𝙘ᥲ𝙨𝙨𝙮  ᥬᩤ genderfluid   
     masc pronouns  ♱   
@@ -29,13 +29,13 @@
 
 <div align=center>
 
-[pt's mydei!](https://github.com/pt-fashion)   🔺  [dumbquadro](https://github.com/pt-friendships)
+[pt's 𝐦𝐲𝐝𝐞𝐢!](https://github.com/pt-fashion)   🔺  [dumbquadro](https://github.com/pt-friendships)
 
 haha stupid squad [yin](https://github.com/phainonirl) [cho](https://github.com/t0rntodescent) [chalk](https://github.com/HiromiAndSanemiLover)
 
 </div>
 
-tumblr crds to: abudasima
+tumblr crds: 𝐚𝐛𝐮𝐝𝐚𝐬𝐢𝐦𝐚 
 
 ![image](https://64.media.tumblr.com/6bf30288bcb4a0726a9cedf58fd1bfc5/136111900b1e0cc4-f8/s2048x3072/8b5c8f52d57709efaa3ec749fc0b24259c0682f9.pnj)
 
