@@ -13,9 +13,9 @@
 〃✦ ┆ c+h + int : 𝐡𝐞𝐚𝐯𝐢𝐥𝐲 𝐞𝐧𝐜𝐨𝐮𝐫𝐚𝐠𝐞𝐝 !
 
     ⠀︵⠀𝙘ᥲ𝙨𝙨𝙮  ᥬᩤ genderfluid   
-    masc pronouns  ♱   
-	𝐫𝐞𝐜𝐢𝐩𝐫𝐨𝐦𝐚𝐧𝐭𝐢𝐜 𝘥𝘦𝘮𝘪𝘴𝘦𝘹𝘶𝘢𝘭　.  ═╬
-	꒪ㅤ 17+,  multishipper .	entp
+    masc pronouns  ♱ 𝐫𝐞𝐜𝐢𝐩𝐫𝐨𝐦𝐚𝐧𝐭𝐢𝐜   
+	𝘥𝘦𝘮𝘪𝘴𝘦𝘹𝘶𝘢𝘭　.  ═╬ ꒪ㅤ 17+,    
+	multishipper .	entp
 
 	16- iwc, please state
 	ur age so i can tone down 
@@ -23,7 +23,8 @@
 	  
 	𝙤𝙡𝙙 𝙣𝙖𝙢𝙚𝙨 :: Chiyo, 
 	Saturn, Ven, Tiel
-	incase old oomfies sees my gh🥺
+	incase old oomfies sees 
+	my gh🥺
 
 </div>
 
