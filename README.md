@@ -57,6 +57,8 @@ all by me okok ok? 👍
 
 Sharlettlin!! Genshin OC (⁠≧⁠▽⁠≦⁠)
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1535641496546443387/Untitled23_20260808213044.png?ex=6a788117&is=6a772f97&hm=70675fc524b2a40e3fa01ea678953b039fed5555952aafb228dcb9701861684b&)
+![image](https://cdn.discordapp.com/attachments/1506651904116002918/1536919700754399263/Untitled28_20260812100903.png?ex=6a7d2783&is=6a7bd603&hm=795aa6d25d03663dd86d7156bee047e2eb1266fddb266151a18729eb77e0e06e&)
+she's wearing white stockings ok 
 
 
 
