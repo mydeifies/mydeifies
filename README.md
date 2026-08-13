@@ -56,7 +56,7 @@ all by me okok ok? 👍
 </div>
 
 Sharlettlin!! Genshin OC (⁠≧⁠▽⁠≦⁠)
-![image](https://cdn.discordapp.com/attachments/1506651904116002918/1535641496546443387/Untitled23_20260808213044.png?ex=6a788117&is=6a772f97&hm=70675fc524b2a40e3fa01ea678953b039fed5555952aafb228dcb9701861684b&)
+![image](https://cdn.discordapp.com/attachments/1506651904116002918/1535641496546443387/Untitled23_20260808213044.png?ex=6a7e6fd7&is=6a7d1e57&hm=7d9f8ae67dca6eccd760152df7f539c7a4b44b8f63f74154a9f28a670b3eb1fe&)
 
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1537091918155092130/Untitled49_20260812161929.png?ex=6a7dc7e7&is=6a7c7667&hm=3b9977902832bca953d4d36bd22239547d117449300c9c92ab0a238f577256f1&)
  
@@ -64,7 +64,7 @@ Sharlettlin!! Genshin OC (⁠≧⁠▽⁠≦⁠)
 
 
 gift 4 yinny🥺
-![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534907466910007417/Untitled21_20260806204744.png?ex=6a75d579&is=6a7483f9&hm=6cdd213b0562539b82fc7a7cf635b9537d34257859181fd1536787ff4d62b656&)
+![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534907466910007417/Untitled21_20260806204744.png?ex=6a7e6739&is=6a7d15b9&hm=741ab21d5ab7d951916fe582f0fefa5f5750525fe7ecb6abf6ac675090bca83f&)
 
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1535844503678615673/Untitled25_20260809105714.png?ex=6a793e28&is=6a77eca8&hm=7b253421a153c6d0939a7dad92bdee95528b6460a9894aa241c628a534405535&)
 
@@ -75,7 +75,7 @@ my daughter's oc yeyeyey mmmm strangle me
 
 
 my oc aweee venice pretty baby
-![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534908759929913495/Untitled19_20260806205853.png?ex=6a75d6ad&is=6a74852d&hm=38fe358a44ddd899d95e49c49a96773e42379e241e1a354ed3999d18915c73f0&)
+![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534908759929913495/Untitled19_20260806205853.png?ex=6a7e686d&is=6a7d16ed&hm=630d0ad4cd597ca5b818ac045f4df090a203ea516813f7054026e9c998904ab1&)
 
 
 more yuri dump
