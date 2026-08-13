@@ -57,6 +57,7 @@ all by me okok ok? 👍
 
 Sharlettlin!! Genshin OC (⁠≧⁠▽⁠≦⁠)
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1535641496546443387/Untitled23_20260808213044.png?ex=6a788117&is=6a772f97&hm=70675fc524b2a40e3fa01ea678953b039fed5555952aafb228dcb9701861684b&)
+
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1537091918155092130/Untitled49_20260812161929.png?ex=6a7dc7e7&is=6a7c7667&hm=3b9977902832bca953d4d36bd22239547d117449300c9c92ab0a238f577256f1&)
  
 
@@ -64,6 +65,7 @@ Sharlettlin!! Genshin OC (⁠≧⁠▽⁠≦⁠)
 
 gift 4 yinny🥺
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534907466910007417/Untitled21_20260806204744.png?ex=6a75d579&is=6a7483f9&hm=6cdd213b0562539b82fc7a7cf635b9537d34257859181fd1536787ff4d62b656&)
+
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1535844503678615673/Untitled25_20260809105714.png?ex=6a793e28&is=6a77eca8&hm=7b253421a153c6d0939a7dad92bdee95528b6460a9894aa241c628a534405535&)
 
 
@@ -78,4 +80,5 @@ my oc aweee venice pretty baby
 
 more yuri dump
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534908760362061904/Screenshot_20260806-205746.jpg?ex=6a75d6ad&is=6a74852d&hm=0b3f08f8bd372bb6fac61438a11858653d7169c2791d4724cb3a89d49941b15f&)
+
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534908760756195368/Screenshot_20260806-205732.jpg?ex=6a75d6ad&is=6a74852d&hm=e50e8ebe2c8b62704890442dcd847dabfa37d55be46eab3f3bf1e77d4e8f042e&)
