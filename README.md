@@ -76,6 +76,8 @@ my daughter's oc yeyeyey mmmm strangle me
 
 my oc aweee venice pretty baby
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534908759929913495/Untitled19_20260806205853.png?ex=6a7e686d&is=6a7d16ed&hm=630d0ad4cd597ca5b818ac045f4df090a203ea516813f7054026e9c998904ab1&)
+vv rough sketch, dynamic pose practice😭😭dies
+![image](https://cdn.discordapp.com/attachments/1506651904116002918/1538178216831746149/Untitled51_20260815213056.png?ex=6a81bb98&is=6a806a18&hm=033e911ef16413ba02fcbc6a60af0a46c63d153d25df6cf48d04af557f6c3eb9&)
 
 
 more yuri dump
