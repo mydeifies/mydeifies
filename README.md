@@ -85,7 +85,7 @@ more yuri dump
 
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534908760756195368/Screenshot_20260806-205732.jpg?ex=6a75d6ad&is=6a74852d&hm=e50e8ebe2c8b62704890442dcd847dabfa37d55be46eab3f3bf1e77d4e8f042e&)
 
-semi-targeted rant **(targeted + generalized)**. nothing too serious but please, if ur upset with me, do not drag my friends into it. i fucking hate it if u guys stoop as low as to making them dislike me too🫩🫩get a life u pmo, stop using me as a seasoning to ur bland ass boring lives, thank u. (⁠人⁠ ⁠•͈⁠ᴗ⁠•͈⁠)
+semi-targeted rant **(targeted + generalized)**. nothing too serious but please, if ur upset with me, do not drag my friends into it, and stop using me as a seasoning to ur bland ass boring lives, thank u. (⁠人⁠ ⁠•͈⁠ᴗ⁠•͈⁠)
 
 + i do not care if you are uncomfortable with me. i am equally uncomfy as u with how im being talked shit behind my back. idek you guys, and thats just straight up petty.
 
