@@ -85,12 +85,12 @@ more yuri dump
 
 ![image](https://cdn.discordapp.com/attachments/1506651904116002918/1534908760756195368/Screenshot_20260806-205732.jpg?ex=6a75d6ad&is=6a74852d&hm=e50e8ebe2c8b62704890442dcd847dabfa37d55be46eab3f3bf1e77d4e8f042e&)
 
-semi-targeted rant (targeted + generalized). nothing too serious but please, if ur upset with me, do not drag my friends into it. i fucking hate it if u guys stoop as low as to making them dislike me too🫩🫩get a life u pmo, stop using me as a seasoning to ur bland ass boring lives, thank u. (⁠人⁠ ⁠•͈⁠ᴗ⁠•͈⁠)
+semi-targeted rant **(targeted + generalized)**. nothing too serious but please, if ur upset with me, do not drag my friends into it. i fucking hate it if u guys stoop as low as to making them dislike me too🫩🫩get a life u pmo, stop using me as a seasoning to ur bland ass boring lives, thank u. (⁠人⁠ ⁠•͈⁠ᴗ⁠•͈⁠)
 
 + i do not care if you are uncomfortable with me. i am equally uncomfy as u with how im being talked shit behind my back. idek you guys, and thats just straight up petty.
 
-+ if you have any problems with me, please address it to me face to face so you do not take my behavior and words out of context. idk how tf u guys came up with accusations such as "me telling someone to kts" and stuff like what the fuck is wrong with you guys? 😬😬
++ if you have any problems with me, *please* address it to me face to face so you do not take my behavior and words out of context. idk how tf u guys came up with accusations such as "me telling someone to kts" and stuff. i love my friends and i respect strangers' boundaries (its not called crossing YOUR boundaries u if im **not even talking to you😁**)
 
-+ if my behavior around my friends bothers you, hide me freely and go on with your day. putangina there's no need to talk shit abt me and ruin my image out of nowhere, you're not even involved in our jokes let alone were we joking around IN FRONT OF YOU. fucking snowflake/sjw.
++ if my behavior around my friends bothers you, **hide me freely and go on with your day**. putangina there's **no** need to talk shit abt me and ruin my image out of nowhere, you're not even involved in our jokes let alone were we joking around IN FRONT OF YOU. 
 
-+ again, if i do not know you nor do you know me personally. LEAVE. ME. ALONE. don't turn the whole shit into a bandwagon and influence my friends to take your side. 
++ again, if i do *not* know you nor do *you* know me personally. **LEAVE. ME. ALONE**. don't turn the whole matter into a bandwagon and influence my friends to take your side! **i deserve to be heard out in such occasions too.** 😓
