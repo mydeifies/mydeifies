@@ -93,4 +93,4 @@ targeted rant. nothing too serious but please, if ur upset with me, do not drag 
 
 + if my behavior around my friends bothers you, hide me freely and go on with your day. putangina there's no need to talk shit abt me and ruin my image out of nowhere, you're not even involved in our jokes let alone were we joking around IN FRONT OF YOU. fucking snowflake/sjw.
 
-+ again, if i do not know you nor do you know me personally. LEAVE. ME. ALONE. don't turn the whole shit into a bandwagon and influence jy friends to take your side. 
++ again, if i do not know you nor do you know me personally. LEAVE. ME. ALONE. don't turn the whole shit into a bandwagon and influence my friends to take your side. 
