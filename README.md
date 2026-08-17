@@ -89,7 +89,7 @@ semi-targeted rant **(targeted + generalized)**. nothing too serious but please,
 
 + i do not care if you are uncomfortable with me. i am equally uncomfy as u with how im being talked shit behind my back. idek you guys, and thats just straight up petty.
 
-+ if you have any problems with me, *please* address it to me face to face so you do not take my behavior and words out of context. idk how tf u guys came up with accusations such as "me telling someone to kts" and stuff. i love my friends and i respect strangers' boundaries (its not called crossing YOUR boundaries u if im **not even talking to you😁**)
++ if you have any problems with me, *please* address it to me face to face so you do not take my behavior and words out of context. idk how tf u guys came up with accusations such as "me telling someone to kts" and stuff. i love my friends and i respect strangers' boundaries (its not called crossing YOUR boundaries if im **not even talking to you😁**)
 
 + if my behavior around my friends bothers you, **hide me freely and go on with your day**. putangina there's **no** need to talk shit abt me and ruin my image out of nowhere, you're not even involved in our jokes let alone were we joking around IN FRONT OF YOU. 
 
