@@ -42,13 +42,12 @@ tumblr crds: 𝐚𝐛𝐮𝐝𝐚𝐬𝐢𝐦𝐚
 
 
 
-ranting in case *some* people decides to take this matter up a notch and actually actively ruin my life. please, do not easily believe them without concrete proof as nobody has yet to confront me about anything, hence why nothing can back up their claims about me (aside from the screenshots they took out of context. i have a shit ton of proofs to vouch myself.)
 
 semi-targeted rant **(targeted + generalized)**. nothing too serious but please, if ur upset with me, do not drag my friends into it, and stop using me as a seasoning to ur bland ass boring lives, thank u. (⁠人⁠ ⁠•͈⁠ᴗ⁠•͈⁠)
 
 + i do not care if you are uncomfortable with me. i am equally uncomfy as u with how im being talked shit behind my back. idek you guys, and thats just straight up petty.
 
-+ if you have any problems with me, *please* address it to me face to face so you do not take my behavior and words out of context. idk how tf u guys came up with accusations such as "me telling someone to kts" and stuff. i love my friends and i respect strangers' boundaries (its not called crossing YOUR boundaries if im **not even talking to you😁**)
++ if you have any problems with me, *please* address it to me face to face so you do not take my behavior and words out of context. idk how tf u guys came up with accusations such as "me telling someone to kts" and stuff. i love my friends and i respect strangers' boundaries (its not called crossing YOUR boundaries if im **not even talking to you, u snowflake😁**)
 
 + if my behavior around my friends bothers you, **hide me freely and go on with your day**. putangina there's **no** need to talk shit abt me and ruin my image out of nowhere, you're not even involved in our jokes let alone were we joking around IN FRONT OF YOU. 
 
