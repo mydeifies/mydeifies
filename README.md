@@ -51,4 +51,4 @@ semi-targeted rant **(targeted + generalized)**. nothing too serious but please,
 
 + if my behavior around my friends bothers you, **hide me freely and go on with your day**. putangina there's **no** need to talk shit abt me and ruin my image out of nowhere, you're not even involved in our jokes let alone were we joking around IN FRONT OF YOU. 
 
-+ again, if i do *not* know you nor do *you* know me personally. **LEAVE. ME. ALONE**. don't turn the whole matter into a bandwagon and influence my friends to take your side! **i deserve to be heard out in such occasions too.** 😓
++ again, if i do *not* know you nor do *you* know me personally. **LEAVE. ME. ALONE**. 
