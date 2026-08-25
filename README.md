@@ -3,7 +3,7 @@
 ![chimeras](https://komarev.com/ghpvc/?username=SUNNEGISEL)
 </div>
 
-
+[temporary, will delete if it reached the right audience.]
 yall'r one to talk when you can't even perform the process of proper communication before cutting someone off. like the better adults that y'all seem to be. can't blame her for reacting that way because of how she was taken by surprise at her most vulnerable state. well, should've expected less from people who also couldn't communicate with me. /targeted #genuinelywishyouguysimprovement #keepyourfriendsincheck #anddontletthemwishforloreisdeathinheratabook #reeksofimmaturity
 
 
