@@ -3,7 +3,7 @@
 ![chimeras](https://komarev.com/ghpvc/?username=SUNNEGISEL)
 </div>
 
-so much for telling someone to act like the adult that they are but you guys cant even confront me about the stuff that i apparently "did". 
+
 
 
 
