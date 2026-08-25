@@ -4,9 +4,7 @@
 </div>
 
 
-[temporary, will delete if it reached the right audience.]
-
-yall'r one to talk when you can't even perform the process of proper communication before cutting someone off. like the better adults that y'all seem to be. can't blame her for reacting that way because of how she was taken by surprise at her most vulnerable state. well, should've expected less from people who also couldn't communicate and chose to spread misleading information about me /targeted #genuinelywishyouguysimprovement #keepyourfriendsincheck #anddontletthemwishforloreisdeathinheratabook #reeksofimmaturity
+:bbb
 
 
 𝐈𝐍𝐓𝐑𝐎 ![image](https://64.media.tumblr.com/e98502d0fcca5bd614b012869fb5405a/136111900b1e0cc4-46/s2048x3072/2ebd110a1c960eb78cc21838a073782ed4904ebe.pnj)
