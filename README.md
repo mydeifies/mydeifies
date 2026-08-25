@@ -13,7 +13,7 @@ yall'r one to talk when you can't even perform the process of proper communicati
 
 <div align=center> 
 	
-〃✦ ┆ c+h + int : 𝐡𝐞𝐚𝐯𝐢𝐥𝐲 𝐞𝐧𝐜𝐨𝐮𝐫𝐚𝐠𝐞𝐝 !
+〃✦ ┆ c+h : 𝐡𝐞𝐚𝐯𝐢𝐥𝐲 𝐞𝐧𝐜𝐨𝐮𝐫𝐚𝐠𝐞𝐝 !
 
     ⠀︵⠀𝙘ᥲ𝙨𝙨𝙮  ᥬᩤ genderfluid   
     masc pronouns  ♱ 𝐫𝐞𝐜𝐢𝐩𝐫𝐨𝐦𝐚𝐧𝐭𝐢𝐜   
