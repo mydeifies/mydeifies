@@ -4,7 +4,7 @@
 </div>
 
 
-:bbb
+
 
 
 𝐈𝐍𝐓𝐑𝐎 ![image](https://64.media.tumblr.com/e98502d0fcca5bd614b012869fb5405a/136111900b1e0cc4-46/s2048x3072/2ebd110a1c960eb78cc21838a073782ed4904ebe.pnj)
@@ -42,14 +42,3 @@ tumblr crds: 𝐚𝐛𝐮𝐝𝐚𝐬𝐢𝐦𝐚
 ![image](https://64.media.tumblr.com/6bf30288bcb4a0726a9cedf58fd1bfc5/136111900b1e0cc4-f8/s2048x3072/8b5c8f52d57709efaa3ec749fc0b24259c0682f9.pnj)
 
 
-
-
-semi-targeted rant **(targeted + generalized)**. nothing too serious but please, if ur upset with me, do not drag my friends into it, and stop using me as a seasoning to ur bland ass boring lives, thank u. (⁠人⁠ ⁠•͈⁠ᴗ⁠•͈⁠)
-
-+ i do not care if you are uncomfortable with me. i am equally uncomfy as u with how im being talked shit behind my back. idek you guys, and thats just straight up petty.
-
-+ if you have any problems with me, *please* address it to me face to face so you do not take my behavior and words out of context. idk how tf u guys came up with accusations such as "me telling someone to kts" and stuff. i love my friends and i respect strangers' boundaries (its not called crossing YOUR boundaries if im **not even talking to you.😁**)
-
-+ if my behavior around my friends bothers you, **hide me freely and go on with your day**. putangina there's **no** need to talk shit abt me and ruin my image out of nowhere, you're not even involved in our jokes let alone were we joking around IN FRONT OF YOU. 
-
-+ again, if i do *not* know you nor do *you* know me personally. **LEAVE. ME. ALONE**. 
